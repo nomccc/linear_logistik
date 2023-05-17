@@ -1,1 +1,2 @@
-# linear_logistik
+2109116010 - Nur Avivah
+SI-A 2021
